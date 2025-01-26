@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with persons, organisations to provide creative solutions to business need 
 - 📫 How to reach me 
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Love creative and mind blowing ideas
 
 <!---
 Faithnwankwo/Faithnwankwo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
